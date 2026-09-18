@@ -10,56 +10,6 @@ Ofc ça s'arrête pas là ! Voilà la suite de ton parcours :
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+<br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 
 Si jamais tu bloques sur la suite tu peux te rendre ici 👀 : 
